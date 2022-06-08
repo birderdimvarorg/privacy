@@ -1,4 +1,4 @@
-Privacy Policy  
+Gizlilik Politikaları 
 ----------------
 
 ### Giriş  
